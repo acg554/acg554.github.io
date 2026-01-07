@@ -1,10 +1,8 @@
 🎮 欢迎来到「牛头人の王国·绿之国」—— 专为绅士鉴赏家打造的NTR主题游戏殿堂 🐄
 
-网站资源库在线下载地址: https://www.ntrku.com
-
-网站资源库在线下载地址: https://www.ntrku.com
-
-网站资源库在线下载地址: https://www.ntrku.com
+<p>网站资源库在线下载地址:  <a href="https://www.ntrku.com" target="_bank">             https://www.ntrku.com</a></p>
+<p>网站资源库在线下载地址:  <a href="https://www.ntrku.com" target="_bank">             https://www.ntrku.com</a></p>
+<p>网站资源库在线下载地址:  <a href="https://www.ntrku.com" target="_bank">             https://www.ntrku.com</a></p>
 
 在这片充满戏剧张力与情感漩涡的虚拟疆域里，我们致力于集结全球高品质的牛头人（NTR）主题作品，以严谨的审美与沉浸式体验为核心，为追求深度叙事的玩家开辟一方隐秘而精致的探索之地。
 
